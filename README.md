@@ -1,0 +1,1 @@
+# Inventory-barcode-scanning-expiry-tracking-and-sales-management-for-Mayra-Groceries-and-Stationaries
